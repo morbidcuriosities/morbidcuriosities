@@ -1,3 +1,4 @@
-<img width="511" height="489" alt="0d1c6fce6a34458a1e6e99dd63514ef0-removebg-preview" src="https://github.com/user-attachments/assets/123734bc-b087-42d0-841e-660a4fe10c37" />
+<img width="736" height="737" alt="image" src="https://github.com/user-attachments/assets/9dceb381-ad22-4688-a580-e6b0ff3bd9e3" />
 
+w2i please! im consistently off tab c:
 
