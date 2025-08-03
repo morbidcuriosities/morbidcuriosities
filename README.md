@@ -1,6 +1,6 @@
-
 <p align="center">
-<img src="demo.gif" alt="animated" />
+<img width="1527" height="180" alt="image" src="https://github.com/user-attachments/assets/5a2ea1de-2578-4d1f-98e5-c4c5b9411dbb" />
+<p align="center">
 <img width="552" height="452" alt="1dd58e2f354724557dc62e1c0fc93efa-removebg-preview" src="https://github.com/user-attachments/assets/75316748-a3dc-4181-945e-c08dae012123" />
 </p>
 
@@ -12,6 +12,9 @@ pt stuff! : whispering is appreciated due to me being consistently off tab... bu
 
 <p align="center">
 c+h-ing is totally fine aswell! dni proship and shit like that
+
+<p align="center">
+<img width="1527" height="180" alt="image" src="https://github.com/user-attachments/assets/5a2ea1de-2578-4d1f-98e5-c4c5b9411dbb" />
 
 ⋆｡°. ｡ °✩ ![ezgif-3a19a442d13509](https://github.com/user-attachments/assets/49a8c1fa-e63c-4f00-a7d0-44c2426c2ce5)
  ![ezgif-37fad6db143547](https://github.com/user-attachments/assets/f0734066-7267-4b87-9373-ff62f275bba5) ![ezgif-421d6df7226184](https://github.com/user-attachments/assets/2070cb04-8b22-4017-ad1a-e91bb4963bbc)
