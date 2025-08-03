@@ -3,7 +3,8 @@
 w2i please! im consistently off tab c:
 <img width="540" height="63" alt="image" src="https://github.com/user-attachments/assets/c6396652-cf9d-4b82-ad0b-9497e6448bf0" />
 
-   <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/1c87a0f0-1eb0-402d-ad40-ad75dc537960" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/0a4ee289-5202-484c-ae5d-b48114346067" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/560b7d07-aebb-496f-ae36-4173b2bb02b6" />
+  <img width="63" height="18" alt="image" src="https://github.com/user-attachments/assets/c8d19e26-0f71-4fbf-adcc-e02dc715fa6e" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/1c87a0f0-1eb0-402d-ad40-ad75dc537960" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/0a4ee289-5202-484c-ae5d-b48114346067" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/560b7d07-aebb-496f-ae36-4173b2bb02b6" /> <img width="63" height="18" alt="image" src="https://github.com/user-attachments/assets/ec43fce0-5cb8-415a-baee-c075a61ca8fe" />
+
 
 
 
