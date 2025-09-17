@@ -1,6 +1,6 @@
 
 <p align="center">
-<img width="552" height="452" alt="a.tumblr.com/8a4c7e878c9f479d02d0acf91c5fa8d3/8929714902ebce43-a0/s1280x1920/4272ca9e51d4fb209862e53a805851e28b9bcc28.pnj" src="https://github.com/user-attachments/assets/75316748-a3dc-4181-945e-c08dae012123"/>
+<img width="500" height="1280" alt="tumblr_8a4c7e878c9f479d02d0acf91c5fa8d3_4272ca9e_1280" src="https://github.com/user-attachments/assets/1c3b92fc-1d09-471b-803b-6c8ac8220de4" />
 </p>
 
 <p align="center">
@@ -13,7 +13,13 @@ pt stuff! : whispering is appreciated due to me being consistently off tab... bu
 c+h-ing is totally fine aswell! dni proship and shit like that
 
 
- ⋆｡｡°. ° ✩ ![ezgif-3c28eb572ef4fd](https://github.com/user-attachments/assets/d8eed626-0d41-4905-b038-18a1cfb43059)![ezgif-33c508d7c745a4](https://github.com/user-attachments/assets/92d4817f-c9c5-4592-9fe1-0509c0f3860f)![ezgif-37fad6db143547](https://github.com/user-attachments/assets/7b71ff09-49cb-45a9-8e49-f5286994ea01)
+
+<p align="center">
+<img width="99" height="55" alt="tumblr_632490f5e881a4ac052bf139a8ec1506_a96cbc6b_100" src="https://github.com/user-attachments/assets/ffb72165-54f6-4905-9f65-925253365e5e" /><img width="99" height="55" alt="tumblr_dc9c3690b7fc1ae309430984b425c2d8_930407e6_100" src="https://github.com/user-attachments/assets/8c5e394f-10ad-4fd0-8d92-5b25918587b5" />
+</p>
+
+
+  creds : mekubuzii, koldbj, irldenji
 
   
 
